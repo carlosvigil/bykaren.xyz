@@ -1,6 +1,6 @@
-
 # bykaren.xyz
 
-## a personal website
+## a soon-to-be blog & shop
 
-Initial creation. Site lacks purpose, may begin as fan site or blog.
+A landing page has been created and published on Nitrous Pubstorm. Created Mail
+ Chimp account and campaign, used prelim landing page logo. Awaiting design.
